@@ -1,0 +1,5 @@
+- Hi, I’m James aka @Jamy-777.
+- Gaming, Programming, Fitness, God.
+- I’m currently pursuing my BCA degree from UPES, Dehradun
+- IG- jamessayswhoa
+- Avid observer.
